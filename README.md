@@ -1,2 +1,1 @@
-# Primera-Chamba
-Primera chamba que yo me enamoré
+Primera chamba que yo me enamoré estoy aprendiendo como chambear esta vaina, con fe se puede hacerlo chvre. Confio en mi.
